@@ -1,4 +1,4 @@
-# 
+# smart bot de negociação FTX plugins é o melhor bot de negociação FTX plugins com otimização de latência e gerenciamento de alavancagem. Seguro, confiável e otimizado para
 
 
 
